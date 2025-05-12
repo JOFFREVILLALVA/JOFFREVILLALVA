@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...TEAMS 
 - 📫 How to reach me ...0998021873
 - 😄 Pronouns: ...MR.VILLALVA
-- ⚡ Fun fact: ...HI
+- ⚡ Fun fact: ...PERITO EN PSICOLOGIA CLINICA
 
 <!---
 JOFFREVILLALVA/JOFFREVILLALVA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
